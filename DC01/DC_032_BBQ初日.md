@@ -1,7 +1,7 @@
 # The Black Wall — Director's Cut
 
 ## 第5章　村
-### 第31話　BBQ初日
+### 第32話　BBQ初日
 
 西暦1584年8月20日。
 
